@@ -3,7 +3,7 @@
 ● 👀 I’m interested in Web Development,Competitive programming,Problem Solving 
 ● 🌱 I’m currently learning Web Development technologies like 
 ● 💞️ I’m looking to collaborate on ...
-● Wanna talk on ...Tech, Web Dev and BlockChain ..
+● Wanna talk on ...Tech, Web Dev and BlockChain ..  
 ● 📫 Reach out to me..
 ●Email- hemuchoudhary231@gmail.com
 ●Linkedin - https://www.linkedin.com/in/hemant-chaudhary-487136231/
